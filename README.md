@@ -1,1 +1,1 @@
-![GoFundMeAvery-JLongo_12216](https://user-images.githubusercontent.com/110778334/198263968-1a14f720-4175-44e9-9c7b-7542556a8697.gif)
+![aa_white](https://user-images.githubusercontent.com/110778334/198278598-b9de23d7-2581-4081-91ce-0bac7d8dfce6.gif)
