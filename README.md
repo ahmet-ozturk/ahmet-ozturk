@@ -1,1 +1,1 @@
-![scrum-nedir](https://user-images.githubusercontent.com/110778334/198292542-7f07e369-5f58-4469-8440-4ef6d16f5f10.jpg)
+![Infographic-of-the-Scrum-process-as-an-Agile-software-development-methodology](https://user-images.githubusercontent.com/110778334/198293362-c4743e14-3152-43c6-8f9a-2186e67e1df5.png)
