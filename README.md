@@ -1,1 +1,1 @@
-![Infographic-of-the-Scrum-process-as-an-Agile-software-development-methodology](https://user-images.githubusercontent.com/110778334/198293362-c4743e14-3152-43c6-8f9a-2186e67e1df5.png)
+![scrum-framework](https://user-images.githubusercontent.com/110778334/198294706-d0a56809-2ac4-46e1-85a2-823d0d7f4d2b.jpg)
