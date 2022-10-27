@@ -1,1 +1,1 @@
-![isle-cinemagraph-10001](https://user-images.githubusercontent.com/110778334/198283525-a4831cd6-9096-4fd6-bf5f-152bd924c495.gif)
+![teamwork-animation-gif-12](https://user-images.githubusercontent.com/110778334/198285737-85d73daf-b786-4dfb-9687-e6753a4bb5e4.gif)
