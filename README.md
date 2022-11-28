@@ -1,1 +1,1 @@
-![ece24da41372e155a576707cf1492f63](https://user-images.githubusercontent.com/110778334/204242804-52d5985b-4137-4ceb-830b-9759c0e3a98f.gif)
+![css-falling-arrow](https://user-images.githubusercontent.com/110778334/204243647-7930b2a6-f970-4e9d-8b51-7a398a2f9dc4.gif)
